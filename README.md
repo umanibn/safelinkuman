@@ -1,0 +1,2 @@
+# safelinkuman
+untuk safelink uman
